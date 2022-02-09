@@ -1,1 +1,1 @@
-Cuenta nueva
+Sí.
